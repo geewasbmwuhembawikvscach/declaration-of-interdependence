@@ -1,5 +1,5 @@
 # declaration-of-interdependence
-The singular declaration, I, one of sovereign being and sound mind do affirm.
+I, one of sovereign being and sound mind do affirm.
 
 When in the Course of human events, 
 it becomes necessary for one to dissolve the political, national, and cultural bands which have separated myself from the other, 
